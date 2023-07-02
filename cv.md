@@ -4,6 +4,7 @@
 * Phone: +7950-241-17-19
 * Email: carinaekuzmicheva@yandex.com
 * GitHub: kissimiss
+* Telegram: @rinakari
 ## About me
 I am 23 years old, I work as a content manager. 
 I think that my actual job will lead me to stagnation some day or other. 
