@@ -1,7 +1,7 @@
 # Karina Kuzmicheva
 ## Contacts
 * Location: Kostroma, Russia
-* Phone: +7950-241-17-19
+* Phone: +7-950-241-17-19
 * Email: carinaekuzmicheva@yandex.com
 * GitHub: kissimiss
 * Telegram: @rinakari
