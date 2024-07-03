@@ -2,7 +2,7 @@
 ## Contacts
 * Location: Kostroma, Russia
 * Phone: +7-950-241-17-19
-* Email: carinaekuzmicheva@yandex.com
+* Email: carinaekuzmicheva@mail.ru
 * GitHub: kissimiss
 * Telegram: @rinakari
 ## About me
