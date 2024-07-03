@@ -28,4 +28,4 @@ alert( result );
 ## Education
 * Kostroma state univercity
 ## English
-A2
+B2
